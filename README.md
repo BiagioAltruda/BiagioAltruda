@@ -1,4 +1,4 @@
-Sono Biagio Altruda Mastrorilli, uno Studente dell'università statale di Pisa.
+Sono Biagio, uno studente dell'università statale di Pisa.
 Su questa pagina carico soprattutto dispense / appunti riguardanti i miei studi.
 In futuro magari anche qualcos'altro boh.
 
